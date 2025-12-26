@@ -1,2 +1,0 @@
-# soyoung_final1
-.
